@@ -8,10 +8,6 @@ permalink: /about/
 
 Gabriella Rocha, mae da Ibiza , surfista wanna be...
 
-### Meu portifolio
-
-### [www.vjpalm.com](www.vjpalm.com)
-
-### [me escreva!](mailto:ricardopalmieri@gmail.com)
+### [me escreva!](mailto:gabriellarochas@gmail.com)
 
 
